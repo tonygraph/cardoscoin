@@ -1,0 +1,2 @@
+# cardoscoin
+criptomoeda nordestina brasil
